@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @kirillova-d. I operate a team of 4 people
